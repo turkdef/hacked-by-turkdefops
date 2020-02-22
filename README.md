@@ -1,2 +1,2 @@
-# hello-world
-My page
+ZeroTolerance  & LinuxLov3r &Bozkurt34
+Linkinpark hacked!
