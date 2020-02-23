@@ -1,2 +1,2 @@
-ZeroTolerance  & LinuxLov3r &Bozkurt34
-Linkinpark hacked!
+ 
+linkin park subdomain takeover
